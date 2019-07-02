@@ -1,5 +1,6 @@
 # Paulina Lippert
-currently under construction - visit [@Paulina Johanna](https://www.instagram.com/paulinajohanna/)
+### **UNDER CONSTRUCTION**  
+visit **[@Paulina Johanna](https://www.instagram.com/paulinajohanna/)**
 
 
 <a href="nebel">
