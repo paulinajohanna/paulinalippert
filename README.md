@@ -1,4 +1,3 @@
-# Paulina Lippert
 ### **UNDER CONSTRUCTION**  
 visit **[@Paulina Johanna](https://www.instagram.com/paulinajohanna/)**
 
