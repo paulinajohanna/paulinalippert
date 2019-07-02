@@ -1,6 +1,4 @@
 # Paulina Lippert
-----------------------
-
 currently under construction - visit [@Paulina Johanna](https://www.instagram.com/paulinajohanna/)
 
 
